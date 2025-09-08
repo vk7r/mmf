@@ -1,1 +1,1 @@
-Mathematical MpodModelling of Football - Spring 2025
+Mathematical Modelling of Football - Spring 2025
